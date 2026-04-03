@@ -1,4 +1,4 @@
-# Hi, I'm Vasistt 👋
+# Hi, I'm Vasist 👋
 
 ## 🚀 Data Analyst | Business Analytics | Machine Learning
 
